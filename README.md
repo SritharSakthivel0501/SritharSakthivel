@@ -1,3 +1,3 @@
 # SritharSakthivel
 
-Your site is live at https://srithardckap.github.io/SritharSakthivel/
+Your site is live at https://sritharsakthivel0501.github.io/SritharSakthivel/
